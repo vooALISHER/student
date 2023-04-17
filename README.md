@@ -1,0 +1,2 @@
+# student
+Talabaning umumiy foaliyati
